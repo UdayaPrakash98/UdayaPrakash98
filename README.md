@@ -7,6 +7,8 @@
 
 - 📫 How to reach me **udayaprakash98@gmail.com**
 
+-🖼 Tableau Public visulaization : https://public.tableau.com/app/profile/udaya.prakash#!/?newProfile=&activeTab=0 
+
 - 📄 Know about my experiences [https://drive.google.com/file/d/1-EtGoGZau3Z7hBIMAqstn5dRO6zzLQ5a/view?usp=sharing](https://drive.google.com/file/d/1-EtGoGZau3Z7hBIMAqstn5dRO6zzLQ5a/view?usp=sharing)
 
 - ⚡ Fun fact **i think im more into techno world**
